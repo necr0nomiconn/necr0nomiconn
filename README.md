@@ -2,7 +2,6 @@
 
 ![](![image](https://github.com/user-attachments/assets/1e3861e0-5b36-4af8-81dc-99669f996cbf)
 
-WHATEVER U GUYS DO DOONT TRUST THIS GUY NBAMED [@orangerouIette](https://github.com/orangerouIette) HES GON A MOLEST ME IN 50 WAYS POSSIBLE ONG!!!!!!!😭😭😭😭😭😭😭😭😭😭😭😭😭
 
 
 
